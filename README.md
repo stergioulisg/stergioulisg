@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Yannis. Experienced movie trailer/promo editor for almost 20 years
-- 👀 I’m interested in color correction/grading
+- 👀 I’m interested in color correction/grading and ofcourse editing
 - 🌱 I’m currently learning Davinci Resolve
 - 💞️ I’m looking to collaborate on films/documentaries/music videos as a colorist
 - 📫 How to reach me ---> please DM at stergioulisg@gmail.com
